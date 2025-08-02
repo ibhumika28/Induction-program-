@@ -1,4 +1,4 @@
-# GURRU NANAK DEV ENGIEERING COLLEGE
+# GURU NANAK DEV ENGINEERING COLLEGE
    Gill Park, Gill Road,Ludhiana
    [img](http://share.google/images/KokcoNiv7MfvH18BK)
 # INDUCTION PROGRAM 2K25
@@ -7,7 +7,7 @@
 Day - thrusday
 Date - 31-07-2025
 # My experience on induction program (day-1)
-• Hello guys my name is bhumika now, i am start writing about my experience firstly, We reached the college according to the schedule for the induction program. After reaching college, we went directly to the Gurudwara Sahib. The security guard give us right direction of the Gurudwara.In the gurudwara sahib there is a large group of people, including many children, we stayed in the Gurudwara Sahib for an extended period, and the atmosphere, especially among the children, was remarkably peaceful and calm.
+• Hello guys my name is bhumika. now, I am start writing about my experience. firstly, We reached the college according to the schedule for the induction program. After reaching college, we went directly to the Gurudwara Sahib. The security guard gives us right direction for the Gurudwara Sahib.In the gurudwara sahib there are large no. of people, including many children, we stayed in the Gurudwara Sahib for an extended period, and the atmosphere, especially among the children, was remarkably peaceful and calm.
 
  • According to the schedule, at 10:00 AM, Langar was served. The menu included Gulab Jamun, tea and snacks and all the children ate with great happiness.
  
