@@ -15,3 +15,12 @@ Date - 31-07-2025
 
   • After that, a video featuring old students was shown to us, highlighting how they secured placements in excellent companies and emphasizing the principal sir's positive influence or impact on the college's standing.
 
+ • Then our chief guest for the day 1 comes on the stage and shared his own life experience with us and teaches us many lessons. 
+
+ • After that according to our sections and mentoring groups our seniors aksed us about our classroom and they drop us in the classroom then many teachers came in the room one bye one  and they introduced us about our college, branch and many other things like mentoring, clubs, society, examination, culture festivals, and mission vision. 
+
+ • After that our teacher shown us many labs like: software labs, computer labs and research labs, etc 
+
+ So, this is my wonderful experience on induction program (day1)
+
+ So, guys thankyou so much ♥️ for read my experienc. 
