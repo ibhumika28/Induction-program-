@@ -13,7 +13,7 @@ Date - 31-07-2025
  
  •After this we all go on the same way to sit in the auditorium before sitting in the auditorium our seniors give us a file bag which includes a diary, pen and Prospectus of college. and then we go inside the auditorium. all the students are very excited for the induction ceremony.
 
-  • The HOD of Applied Science often teaches the fundamental principles of science and humanities. The speech could have covered topics like the curriculum, faculty, facilities, or the overall importance of the program for new students. she really teaches us very interesting and important topics in politely way.
+  • The HOD of Applied Science often teaches the fundamental principles of science and humanities. her speech covered up topics like the curriculum, faculty, facilities, or the overall importance of the program for new students. she really teaches us very interesting and important topics in politely way.
 
   • After that, a video featuring old students was shown to us, highlighting how they secured placements in excellent companies and emphasizing the principal sir's positive influence or impact on the college's standing.
 
