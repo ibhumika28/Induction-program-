@@ -15,14 +15,14 @@ Date - 31-07-2025
 
   • The HOD of Applied Science often teaches the fundamental principles of science and humanities. her speech covered up topics like the curriculum, faculty, facilities, or the overall importance of the program for new students. she really teaches us very interesting and important topics in politely way.
 
-  • After that, a video featuring old students was shown to us, highlighting how they secured placements in excellent companies and emphasizing the principal sir's positive influence or impact on the college's standing.
+  • After that, two video of old students was shown to us, highlighting how they secured placements in excellent companies and then the principal of our college come to the stage and start speaking he gives introduction of the college. and give us welcome. he is really a good man.
 
- • Then our chief guest for the day 1 comes on the stage and shared his own life experience with us and teaches us many lessons. 
+ • Then our chief guest for the day 1 comes on the stage and shared his own life experience with us and teaches us many lessons and morals. 
 
- • After that according to our sections and mentoring groups our seniors aksed us about our classroom and they drop us in the classroom then many teachers came in the room one bye one  and they introduced us about our college, branch and many other things like mentoring, clubs, society, examination, culture festivals, and mission vision. 
+ • After that according to our sections and mentoring groups our seniors tell us about our classroom and they drop us in the classroom then many teachers came in the room one by one  and they introduced us about our college, branch and many other things like mentoring, clubs, society, examination, culture festivals, and mission vision. 
 
  • After that our teacher shown us many labs like: software labs, computer labs and research labs, etc 
 
- So, this is my wonderful experience on induction program (day1)
-
- So, guys thankyou so much ♥️ for read my experience. 
+ this is my wonderful experience on induction program (day1
+ 
+ guys thankyou so much ♥️ for read my experience. 
