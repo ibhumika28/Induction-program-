@@ -23,6 +23,4 @@ Date - 31-07-2025
 
  • After that our teacher shown us many labs like: software labs, computer labs and research labs, etc 
 
- this is my wonderful experience on induction program (day1
- 
- guys thankyou so much ♥️ for read my experience. 
+
