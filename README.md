@@ -28,3 +28,12 @@ day - Friday, date - 01-08-2025
 
 •According to our schedule. we all reached the college at 9:15 sharp. then today was our ( CSE and IT branch) English and math proficiency test. we had not give good tests. I was really not satisfied about my test.
 
+•Then according to our schedule, there was break from 11:30 A.M to 1:00 P.M. So, we was ate our lunch. now, break was over. So, we went auditorium at 1:20 P.M sharp to attend the expert lecture by Dr. Arashdeep Singh "Food: A Pivotal Role in Student's Overall wellness". He guides us about our diet. he tell us what is the good and healthy diet for us and also he said that there is a nessary to eat food 3 times in one day. He strictly say no for sugar and those products who are made up from sugar like : colddrinks and specially juice. because in the bottle of  juice there is only 10 % of juice in the bottle. other 90% are sugar and other mamy things. he tell that these things are very harmful for our body.he tell us that the use of junk food is not harmful for the body. but the major use of junk food or replaced junk food with healthy food is very harmful for our body. He tell that eat everything but in such a right way.
+
+•Now, according to schedule, there is our second session by causmic club in the auditorium started from 2:30 P.M. there is so much fun in the session owered by our seniors. one of our seniors sung many songs and then they tell about one app name is github and tell that to make a report of all days of induction programe. then with the help of our seniors we registered ourself on the github app. then the session and induction programme of day - 2 was over.
+
+# Day - 3
+day - Saturday, date - 02-08-2025
+
+
+
