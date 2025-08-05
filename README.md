@@ -23,4 +23,8 @@ Date - 31-07-2025
 
  • After that our teacher shown us many labs like: software labs, computer labs and research labs, etc 
 
+# Day - 2
+day - Friday, date - 01-08-2025
+
+•According to our schedule. we all reached the college at 9:15 sharp. then today was our ( CSE and IT branch) English and math proficiency test. we had not give good tests. I was really not satisfied about my test.
 
