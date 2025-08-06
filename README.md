@@ -3,7 +3,9 @@
    [img](http://share.google/images/KokcoNiv7MfvH18BK)
 # INDUCTION PROGRAM 2K25
 # DAY-1
-   (FOR CSE AND IT BRANCH PROGRAM)
+(FOR CSE AND IT BRANCH PROGRAM)
+
+
 Day - thrusday
 Date - 31-07-2025
 # My experience on induction program (day-1)
