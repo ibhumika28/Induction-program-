@@ -9,6 +9,8 @@
 Day - thrusday
 Date - 31-07-2025
 # My experience on induction program (day-1)
+
+
 • Hello guys my name is bhumika. now, I am start writing about my experience. firstly, We reached the college according to the schedule for the induction program. After reaching college, we went directly to the Gurudwara Sahib. The security guard tell us right direction for the Gurudwara Sahib.In the gurudwara sahib there are large no. of people, including many children, we stayed in the Gurudwara Sahib for an extended period, and the atmosphere, especially among the children, was remarkably peaceful and calm.
 
  • According to the schedule, at 10:00 AM, Langar was served. The menu included Gulab Jamun, tea and snacks and all the children ate with great happiness.
@@ -57,6 +59,9 @@ day - Wednesday, date - 06-08-2025
 
 •According to our schedule. today was our two class lecture. one subject  of them is p2p lecture from 9:30am to 10:30am and other subject is BEEE lecture from 10:30 am to 11:30 am. these two subject are new for us. p2p subject is about programming function and the other subject is basic electrical and electronics engineering. Our seniors and teachers was teach us these subjects.there was break from 11:30am to 12:30 pm 
 
+•At 1:30 p.m. we are sitting in the auditorium. at 2:00 p.m. The member of trust Mr. gurcharan Singh Grewal went to the auditorium and come on the stage. he tell us about the college and introduce the college. he talking about the topic of placement, name and fame of college and the best students of the college who got job in big companies.
+
+•After that Dr. lakhvir Singh Khanna incharge of CML come on the stage.  he shared with us the benefits of joining his society. he clear said that I want sincere students who wanted to learn something. after that he tell about the swayam website and the NPTEL courses. which are available on this website and this is really very very useful for the students to do online courses.  its will help us in our future.
 
 
 
