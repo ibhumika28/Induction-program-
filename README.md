@@ -55,6 +55,7 @@ day - Monday, date - 04-08-25
 # Day - 5
 day - Wednesday, date - 06-08-2025
 
+•According to our schedule. today was our two class lecture. one subject  of them is p2p lecture from 9:30am to 10:30am and other subject is BEEE lecture from 10:30 am to 11:30 am. these two subject are new for us. p2p subject is about programming function and the other subject is basic electrical and electronics engineering. Our seniors and teachers was teach us these subjects.there was break from 11:30am to 12:30 pm 
 
 
 
