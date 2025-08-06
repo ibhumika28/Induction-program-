@@ -46,6 +46,16 @@ day - Saturday, date - 02-08-2025
 # Day - 4
 day - Monday, date - 04-08-25
 
+•According to our schedule. today was our two class lecture. one subject  of them is p2p lecture from 9:30am to 10:30am and other subject is BEEE lecture from 10:30 am to 11:30 am. these two subject are new for us. p2p subject is about programming function and the other subject is basic electrical and electronics engineering. Our seniors and teachers was teach us these subjects.
+
+•There was break from 10:30am to 11:30am. now, today was again the expert lecture by Dr Priya darshni on "universal human values". she was continue her previous lecture on universal human values. so,she was give recap of the previous session. in this session, she tell us how to control our anger issues,how to maintain right understanding with our family with our friends and how to be came out from the guilt. This session was also very interesting as the previous session.
+
+•After that the session by cosmic club was started in the auditorium at 2:30. our seniors are ownered  this session. one of our senior show us his talent of singing. they tell us the benefits of joining the cosmic club.
+
+# Day - 5
+day - Wednesday, date - 06-08-2025
+
+
 
 
 
