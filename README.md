@@ -35,5 +35,15 @@ day - Friday, date - 01-08-2025
 # Day - 3
 day - Saturday, date - 02-08-2025
 
+•Today, there was two lectures in the auditorium. First expert lecture by Dr. jaswinder singh from 9am to 11am and second lecture by Dr. priya darshni mam on "Universal Human Values" from 11am to 1pm.
+
+•Dr. jaswinder singh started his lecture at 9am sharp. He tell us  that what is meaning of sat shri akal and when we close our eyes what we can see. his lecture was really interesting. His all lecture are based on God and math. he  that in everything there is use of math and also he give us many examples of this. students of cse and IT was enjoy this lecture very much.  he do many experiment for shown us like: vibrations, sounds and waves. then he tell about our bones and make sure that we are learned how the bones are divided in our body. then he write the word 'bhagwan' on the black board amd told that he is a bagwan also said that if anyone has a doubt then you guys told me that this is not bhagwan. no one stand up there.
+
+•Now,  the expert lecture by Dr Priya darshni started at 11am sharp. she came down from the stage for make an interaction between the student and teacher. she gave us  the lecture on " Universal Human Values". she was talking about right understanding, physical facilities, our schedule, efforts and goals she put us many questions like: what is our goal in life, why we do all the efforts, what is right understanding, why we need more than more physical facilities to survive our life, is physical facilities is enough to become a happy person? and then she said that our main goal in our life is to be happy. we do all efforts for not money, fame and another things.  but we do all efforts to be happy in our life and survive with lots of happiness. to become a happy in our life  there is not much need of physical facilities but there is a much need of right understanding in our relationships. students put many questions. because students was very confused. she is so kind she replied everyone's questions in such a good way and then the session was over.
+
+# Day - 4
+day - Monday, date - 04-08-25
+
+
 
 
