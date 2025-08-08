@@ -63,7 +63,7 @@ day - Wednesday, date - 06-08-2025
 
 •After that Dr. lakhvir Singh Khanna incharge of CML come on the stage.  he shared with us the benefits of joining his society. he clear said that I want sincere students who wanted to learn something. after that he tell about the swayam website and the NPTEL courses. which are available on this website and this is really very very useful for the students to do online courses.  its will help us in our future.
 
-# Day - 7
+# Day - 6
 day - thrusday, date - 07-08-2025
 
 •According to our schedule there was a session about DMC(Digital Marketing Club) by Dr. Amrit kamra.Then Dr. Amit Kamra (InchargeDMC)introduced with us Digital marketing club. He displayed many videos editted by the members of this club using Photoshop and Canva which seemed really innovative to me.
