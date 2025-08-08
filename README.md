@@ -66,6 +66,17 @@ day - Wednesday, date - 06-08-2025
 # Day - 7
 day - thrusday, date - 07-08-2025
 
+•According to our schedule there was a session about DMC(Digital Marketing Club) by Dr. Amrit kamra.Then Dr. Amit Kamra (InchargeDMC)introduced with us Digital marketing club. He displayed many videos editted by the members of this club using Photoshop and Canva which seemed really innovative to me.
+
+•Now, there was a lecture by Dr. Parminder Singh. he tell us about what things are in our college. he was talking about sports, hostels, department, canteens, stationary shop, gurudwara sahib, clubs, society and seminar halls
+
+•About Conduct of Examination
+All the students were given important information about the conduct of examination by Dr. Randhir Singh . He told us all about mid semester examinations,makeup examination and final examination. He also gave us the overview of marking system.
+
+Then we had our lunch break.
+
+•After that we proceeded to ME Seminar hall and attended our lecture of BEEE by Madam Prof. Harminder Kaur. She taught us the subject very well. She started the syllabus with the chapter DC Circuit. She made a very good explanation. I understood each and every topic.Then there was a interactive session with our seniors. they boast our confidence. i think so it will very helpful for us in our life. 
+
 
 
 
