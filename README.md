@@ -77,6 +77,13 @@ Then we had our lunch break.
 
 •After that we proceeded to ME Seminar hall and attended our lecture of BEEE by Madam Prof. Harminder Kaur. She taught us the subject very well. She started the syllabus with the chapter DC Circuit. She made a very good explanation. I understood each and every topic.Then there was a interactive session with our seniors. they boast our confidence. i think so it will very helpful for us in our life. 
 
+# Day - 7 
+day - Friday, date - 08-08-25
+
+•We took our seats in the TCC Seminar hall, where we first got to know about the power of Millets as a Superfood, a lecture led by Mrs. Shaffy Makkar, highlighting their benefits in not just the process of digestion, but also being useful to cure several health problems, besides being brain enhancers.
+
+After this biology-packed session, we met Prof. Gagandeep Lotey, who told us about the logic behind infinty, or why we consider the left side of a closed loop as its inside, or the part that it has control over. No, it wasn't philosophy, it was mathematics!
+
 
 
 
